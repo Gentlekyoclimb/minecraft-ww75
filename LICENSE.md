@@ -1,4 +1,4 @@
-
+instant minecraft Script is the best minecraft Script, featuring infinite resources and god mode. Safe and powerful for all your needs.
 
 
 
